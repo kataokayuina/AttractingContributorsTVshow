@@ -32,3 +32,5 @@ Please add to the list below.
 ・THE GREATEST SHOW-NEN
 ・Gundam
 ・crazy journey
+・Ametalk
+
